@@ -1,1 +1,1 @@
-# laser-based-intensive-training-for-athletes
+# Laser-based-Intensive-Training-for-Athletes
